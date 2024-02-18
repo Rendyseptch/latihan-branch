@@ -1,5 +1,2 @@
 # latihan-branch
-ssjsd
-
-sjskk
-sssk
+haiiiiiii
